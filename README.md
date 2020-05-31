@@ -1,0 +1,2 @@
+# sieciuchyOS
+najlepszy linux ever.
